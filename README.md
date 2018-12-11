@@ -1,0 +1,2 @@
+# faszomfasza
+Programozasra
